@@ -3,4 +3,4 @@ Third one should do it
 
 This changes are being done to improve the way my brain thinks. 
 Hope this will bring a new opportunity in my life. 
-Thanks
+Have a great day
